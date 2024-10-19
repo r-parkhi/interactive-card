@@ -1,1 +1,1 @@
-my first user inputs - CGD 2023 interactive card
+my first user inputs CGD 2023 interactive card
